@@ -1,2 +1,0 @@
-# yawa
-About Me
